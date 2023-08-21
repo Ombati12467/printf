@@ -1,1 +1,1 @@
-This is a groups project done by Fiona Kibugu and Brian Ombati
+This is a group project done by Fiona Kibugu and Brian Ombati
